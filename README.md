@@ -18,10 +18,16 @@ Globalization has accelerated the diffusion of Italian culinary influences world
 
 In the 21st century, Australia, like much of the Western world, has been profoundly impacted by the culinary and cultural influence of Italy. Italian migration, education, media exposure, tourism experiences, and globalization have all contributed to the assimilation of Italian food and culture into the Australian way of life. Today, Italian cuisine is not just a part of Australia's culinary landscape but an integral and beloved aspect of its cultural identity. The Italian influence serves as a testament to the power of cultural exchange and enrichment in a globalized world.
 
-Citations
+
+#### Citations
 [1] https://www.casanovaitalian.com.au/blog/how-has-italian-cuisine-influenced-australia/
+
 [2] https://madeinitaly.com.au/australia-day-italian-style/
+
 [3] https://gemelliitalian.com.au/influence-and-origin-of-italian-food-in-brisbane-and-australia/
+
 [4] https://bestinau.com.au/italian-influence-on-australian-culture/amp/
+
 [5] https://www.11inchpizza.com.au/the-story-of-melbourne-and-italian-food/
+
 [6] https://prezi.com/dsaj3xqsqclv/how-did-italians-impact-australias-food-culture/
